@@ -1,6 +1,5 @@
 # 2lb Pamphlet dot com
 
-
 ### Theory =
  The 2016-2020 Democrat Successor Party will not accommodate both Zionists and African-Americans
 
@@ -30,15 +29,18 @@ One Day, Everyone Will Have Always Been Against This (El Akkad), amazon.com/dp/0
 
 ### Apportionment = 
 
-85% to Couriers (about $7 per book) 
+85% to Couriers (about $6 per book) 
 
 ###  Zero-cost Help out = 
 
-Copy-and-paste all text to friend groups 
+1. Copy-and-paste all text to friends; 2. Privately share domain name 
+
+### Donors' Anti-Motivation = 
+
+Augmenting swing-state Democrat Base Disaffection / Disengagement 
 
 ### Video Proofs of Action = 
 TBA 
 
 ### getsession.org Contact = 
 05f773a69fff897b3b1fb69229a3d788822546339320fd1ddbcfb9fdf12efb740b
-
